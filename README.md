@@ -1,6 +1,6 @@
 # BloodMoney2 Game Play Online
 
- <a href="https://bloodmoney-2.com/" title="Blood Money 2" rel="dofollow">Blood Money 2</a>It is a fun simulation clicker game, in BloodMoney2 you can get rewards by constantly clicking on your character, with your continuous clicking you can get a lot of money, you can get a lot of rewards every time you click, when you reach a certain amount of money, you can unlock more exciting plots, bring you an immersive gaming experience, players who like it come to play <a href="https://bloodmoney-2.com/" title="Blood Money 2" rel="dofollow">Blood Money 2</a>.
+ <a href="https://bloodmoney-2.com/" title="Blood Money 2" rel="dofollow">Blood Money 2</a> It is a fun simulation clicker game, in BloodMoney2 you can get rewards by constantly clicking on your character, with your continuous clicking you can get a lot of money, you can get a lot of rewards every time you click, when you reach a certain amount of money, you can unlock more exciting plots, bring you an immersive gaming experience, players who like it come to play <a href="https://bloodmoney-2.com/" title="Blood Money 2" rel="dofollow">Blood Money 2</a>.
 
 ![Bloodmoney 2 image](https://bloodmoney-2.com/Bloodmoney22.png)
 
